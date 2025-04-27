@@ -6,6 +6,6 @@ Unlock Tool is a small or largest mobile database repair platform for Windows  c
 
 
 
-## [➤➤🔴📺📱👉Unlock tool For Linux](https://tinyurl.com/5n8xttf6)
+## [➤➤🔴📺📱👉Unlock tool For Linux](https://alipc.pro/dl/)
 
-## [➤➤🔴📺📱👉Unlock tool For Windows            ](https://tinyurl.com/5n8xttf6)
+## [➤➤🔴📺📱👉Unlock tool For Windows            ](https://alipc.pro/dl/)
